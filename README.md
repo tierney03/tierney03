@@ -1,5 +1,5 @@
 -  Hi, I’m @tierney03
--  Front End Software Developer w/ TIAG
+-  Front End Software Developer w/ Full Stack Knowledge
 -  I’m looking to collaborate on anything where I can finetune and improve my skillset.
 -  I’m interested in cooking, books, doing things with my little family, learning all the new things.
 - 📫 How to reach me tierney_03@mac.com
